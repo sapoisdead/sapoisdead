@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @sapoisdead
+- 👀 I’m interested in programming/design/animation/fkn everything
+- 🌱 I’m currently learning javascript/css
+- 💞️ I’m looking to collaborate on (whateves)
+- 📫 How to reach me sapoink@gmail.com IG: sapoisdead
